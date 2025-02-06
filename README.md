@@ -1,0 +1,1 @@
+my digital marketing and graphic design projects for Vulture Construction Company. In addition to these designs, I have developed a fully functional website for the company, which can be viewed at www.vultureconandtrans.co.zw. Alongside these achievements, I also manage and run the company's digital marketing platform on Facebook.
